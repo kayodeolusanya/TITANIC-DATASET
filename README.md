@@ -11,3 +11,5 @@ deadliest peacetime sinking of a superliner or cruise
 ship.[4] The disaster drew much public attention,
 provided foundational material for the disaster film
 genre, and has inspired many artistic works.
+
+<img src="Titanic%20screenshot.PNG" width="800">
